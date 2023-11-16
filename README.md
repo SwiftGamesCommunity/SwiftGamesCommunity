@@ -1,0 +1,4 @@
+- 👋 Salam, Ma @SwiftGamesCommunity Hastim
+- 👀 Darhal Hazer Roye Gamemode MTA:SA SwiftGames Kar Mikonam
+- 🌱 Channel Discord: Coming Soon...
+- 📫 ID Discord Man: Hesamw
